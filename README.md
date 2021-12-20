@@ -27,20 +27,20 @@ And although making a difference isn't hard,
 
 We are obscured from ourselves, 
 
-for now. 
 
- But those truths exist already, in a metafor, or a funeral rite, or a tribal council.
+
+But many of our truths exist already, in a foreign metafor, or a funeral rite, or an elder's smile.
 
 Just as all people must know themselves, eventually, we will know each other.  
 
-Our silly ambition and glorious purpose is trivial. 
+My silly ambition and glorious purpose is trivial. 
 
-Ambassadors, 
-go betweens from people to person. 
+An ambassador, 
+a go betweens from people to person. 
 
 
 Kindest Regards
-The Hivemind
+The I'vemind
 lieweHenksie
 
 
