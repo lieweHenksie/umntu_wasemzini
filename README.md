@@ -25,13 +25,12 @@ And although making a difference isn't hard,
  For now we are still a hedonistic little superbaby testing it's morality. A single organism in its infancy, just barely able to to communicate with itself. 
 
 
-We are obscured from ourselves, 
+Obscured from ourselves, 
 
 
+And even though many of our truths may exist already, perhaps in a foreign metafor, or a funeral rite, or an elder's smile.
 
-But many of our truths exist already, in a foreign metafor, or a funeral rite, or an elder's smile.
-
-Just as all people must know themselves, eventually, we will know each other.  
+Just as  all people must know themselves, eventually, we will know each other.  
 
 My silly ambition and glorious purpose is trivial. 
 
